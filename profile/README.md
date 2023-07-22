@@ -1,8 +1,8 @@
 # AI SECRET AGENT.com  Org Repository
 
-## Exclusive Mebership Only AI Automation Dev Community
+## Exclusive Membership Only AI Automation Dev Community
 
-Limited Membership Offer
+Limited Time Exclusive Membership Offer
 
 https://aisecretagent.com/agents
 
