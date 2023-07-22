@@ -1,6 +1,10 @@
-# AI SECRET AGENT.com  Organizattion Repository
+# AI SECRET AGENT.com  Org Repository
 
-## Exclusive Mebershi Only AI Automation Dev Community
+## Exclusive Mebership Only AI Automation Dev Community
+
+Limited Membership Offer
+
+https://aisecretagent.com/agents
 
 ## Public Information
 
