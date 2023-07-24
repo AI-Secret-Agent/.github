@@ -1,11 +1,5 @@
 # AI SECRET AGENT.com  Org Repository
 
-## Exclusive Membership Only AI Automation Dev Community
-
-Limited Time Exclusive Membership Offer
-
-https://aisecretagent.com/agents
-
 ## Public Information
 
 ### Free Demo of Content Publishing MVP
